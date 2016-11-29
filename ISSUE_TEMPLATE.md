@@ -23,4 +23,4 @@
 *  
 * 
 * 
-
+_Please suggest an image or graphic for this activity in the comments below._
